@@ -1,1 +1,0 @@
- https://olegkrasilev.github.io/rsschool-cv/cv
